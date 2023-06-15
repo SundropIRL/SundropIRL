@@ -1,3 +1,1 @@
-- 👋 Hi, I’m Sundrop <3
-- 👀 I’m interested in mainly: FNaF (Five Nights at Freddys), PPT (Poppy Playtime), and MLP (My Little Pony)
-- 🌱 I’m currently learning: How to make new friends!!
+
